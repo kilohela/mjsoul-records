@@ -1,1 +1,1 @@
-个人雀魂 mortal 跑谱数据。
+个人 mortal/gokujan 跑谱数据
